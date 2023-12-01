@@ -1,1 +1,1 @@
-## leading esports organisation in i
+## leading esports organisation in India 
